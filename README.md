@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MKhAwad
+- 👋 Hi, I’m Mohammad Khaleel
 - 👀 I’m a Civil Engineer 
 - 🌱 I am currently a master’s student in Structural Engineering...
 - 📫 Reach me on m_k_awad@outlook.com
